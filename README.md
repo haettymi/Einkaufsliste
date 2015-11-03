@@ -16,3 +16,6 @@ Michael HŠtty
 * Grundschule Schopfheim
 
 * Realschule Zell
+
+
+![Passbild](http://lindenborn.de/wp-content/uploads/2015/04/Frank-Passbild.-klein-pdf-Kopie-213x300.png)
